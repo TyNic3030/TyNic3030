@@ -1,0 +1,5 @@
+- @TyNic3030
+- OG Collectibles
+- The OG Foundation
+- ty@ogcollectibles.io
+- https://www.ogcollectilbes.io
